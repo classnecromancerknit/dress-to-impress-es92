@@ -1,4 +1,4 @@
-#  
+#  Experience dress to impress like never before with dress to impress Scripts hidden, the #1 Script. Includes private server access and auto-collect
 
 
 
